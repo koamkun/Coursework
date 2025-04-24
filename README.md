@@ -2,6 +2,7 @@
 
 **Student:**Sultanov Timur  
 **Course:** Eeair24  
+[Uploading Employee-Payroll-Management-System (3).pptx…]()
 
 
 ---
